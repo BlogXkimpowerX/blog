@@ -7,14 +7,14 @@ title: 2/8/2023 News & Thoughts
 ["Three takeaways from Biden’s State of the Union address" by The Washington Post](https://www.msn.com/en-us/news/politics/3-takeaways-from-biden-s-state-of-the-union-address/ar-AA17edyB)
 
 
-Main points from the article:
+## Main points from the article:
 
   1.	Biden had a State of the Union address yesterday (2/7/2023) and discussed a couple of the topics including bipartisan, entitlement rights, debt deficit, and the Junk Fee Prevention Act
   2.	Biden emphasized bipartisan themes where he urged that both parties could settle on a consensus. He also mentioned the previous time when both parties (barely) agree to pass the infrastructure bill. 
   3.	Biden also emphasized on Junk Fee Prevention Act which cracks down on things like airlines charging fees for families to sit together, prohibiting high ticket fees for concerts and events, and preventing media companies from charging hundreds of dollars to customers who switch services.
 
 
-My View:
+## My View:
 
 I didn’t watch the full version of this State of the Union speech from Biden last night. 
 But I watched LeBron James's game which was the game in that he becomes the number one all-time scoring leader in NBA history. 
